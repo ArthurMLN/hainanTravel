@@ -16,5 +16,7 @@
 ## Knowledge
 ### Chinese visa
 1. Valid for 1 years for US citizien
-2. 350$ for agent fee
-3. Takes 2-4 weeks to complete 
+2. 390$ for agent fee
+3. Takes 3-4 weeks to complete
+4. Visa free for 6 days 
+
