@@ -20,3 +20,4 @@
 3. Takes 3-4 weeks to complete
 4. Visa free for 6 days, everywhere, for Hainan 30 days
 5. [http://chicago.china-consulate.gov.cn/qzhz/qz/202408/t20240820_11476277.html](http://chicago.china-consulate.gov.cn/qzhz/qz/202408/t20240820_11476277.htm)
+
