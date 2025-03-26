@@ -21,3 +21,7 @@
 4. Visa free for 6 days, everywhere, for Hainan 30 days
 5. [http://chicago.china-consulate.gov.cn/qzhz/qz/202408/t20240820_11476277.html](http://chicago.china-consulate.gov.cn/qzhz/qz/202408/t20240820_11476277.htm)
 
+## 3.26
+1. 整理行程单
+2. 给予更详细的视频剪辑换场方式
+
